@@ -1,0 +1,1 @@
+# Tar-m-Fiyat-Dinamikleri
